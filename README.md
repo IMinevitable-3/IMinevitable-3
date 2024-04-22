@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **komalsai130@gmail.com**
 
-- ⚡ Hobbies [**chess**](https://www.chess.com/member/dark_horse35)
+- ⚡ Hobbies [**chess**](https://www.chess.com/member/dark_horse35)(let's play..)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
